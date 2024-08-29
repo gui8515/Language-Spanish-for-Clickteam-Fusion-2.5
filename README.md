@@ -1,0 +1,1 @@
+# Language-es-ES-for-Clickteam-Fusion-2.5
